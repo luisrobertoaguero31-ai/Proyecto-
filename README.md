@@ -1,2 +1,0 @@
-# Proyecto-
-Poyecto de Scrum 
